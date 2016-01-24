@@ -37,14 +37,10 @@ what i wouldn't give
 to be back with my friends singing karaoke  
 
 ###credits
--released January 9, 2016
++ released January 9, 2016
++ written and recorded by r. turner 
++ mixed and mastered by jonathan "the machine" keen 
++ drums by bradyn krueger 
++ spec. thank. to nick thompson and john van deusen
 
--written and recorded by r. turner 
-
--mixed and mastered by jonathan "the machine" keen 
-
--drums by bradyn krueger 
-
-spec. thank. to nick thompson and john van deusen
-
-[Listen to this song on Bandcamp now!](https://rturner.bandcamp.com)
+**Source: [Listen to this song on Bandcamp now!](https://rturner.bandcamp.com)**
